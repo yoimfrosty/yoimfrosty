@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SaphaLGiri
+- 👋 Hi, I’m @SaphalGiri
 - 💞️ I’m looking to collaborate on any of the UI/UX projects, content creation projects
 - 📫 How to reach me @FROST_XD801 on X.
 
